@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **jbhavya310@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1luz--vjD-u9XeYDL2DLELp88N5s07JB4/view?usp=sharing](https://drive.google.com/file/d/1luz--vjD-u9XeYDL2DLELp88N5s07JB4/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/17QhIUHVzFHqTfUUNRQLPrzK-PnfC6P_b/view?usp=sharing](https://drive.google.com/file/d/17QhIUHVzFHqTfUUNRQLPrzK-PnfC6P_b/view?usp=sharing)
 
 - ⚡ Fact **I like to keep it simple**
 
